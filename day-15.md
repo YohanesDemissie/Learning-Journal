@@ -1,0 +1,2 @@
+#Journal Day 15#
+as the final day of 201 lectures end, I can thelp but think deeply about everything I've over come these passed 3 weeks. From the code I learned, the tenacity I've gained and the hardships I pushed through, this lifestyle has become a lot more realistic into becoming a career for me.  I really look forward to project week, gaining some independence from leadership and working with my tean. I look forward to implimenting everything we've learned, wrapping up a great project, and moving on to the next course as a 301 student!!!!
